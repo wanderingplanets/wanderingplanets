@@ -14,7 +14,7 @@
 
  MAP
 
- Forsaken and Dandy's World fandom (unless party)
+ Forsaken fandom (unless party)
 
  Overly sensitive people (A little is ok but only to a extent)
 
