@@ -41,6 +41,8 @@
 
   Wings of Fire
 
+  Bad Things
+  
   House of Puso
 
   Dandy's World
