@@ -23,6 +23,13 @@
  Sexual jokes in public chat or not a freind
 
 
+## DO NOT INTERACT UNLESS FREIND . . .
+
+ Ships 
+
+ Roleplay
+
+ Sensitive topics
 
  ## Fandoms
 
