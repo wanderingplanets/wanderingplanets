@@ -6,6 +6,8 @@
 
  Transmasc / AFAB
 
+ Devesto and Mercury are my personalities
+
  Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
 
  Diagnosed Anxiety and ADD
