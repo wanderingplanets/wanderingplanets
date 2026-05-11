@@ -4,7 +4,7 @@
 
  17 y.o
 
- Transfem
+ Transmasc
 
  Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
 
