@@ -1,4 +1,4 @@
-## Names are Neptune , Mercury or Io ! (Or any of my fictkins/nicknames)
+## Names are Neptune , Mercury or Io ! (Or any of my nicknames)
 
 ## Info abt me . . . 
 
