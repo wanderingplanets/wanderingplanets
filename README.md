@@ -18,9 +18,9 @@
 
  Overly sensitive people (A little is ok but only to a extent)
 
- Below 14 or over 25 years old
+ Below 14 or over 25 years old (unless known before)
 
- Sexual jokes in public chat or not a freind
+ Sexual jokes in public chat
 
 
 ## DO NOT INTERACT UNLESS FREIND . . .
@@ -30,6 +30,8 @@
  Roleplay
 
  Sensitive topics
+
+ Sexual jokes (only in whisper or party)
 
  ## Fandoms
 
