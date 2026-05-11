@@ -6,7 +6,7 @@
 
  Transmasc / AFAB
 
- Devesto,Solarballs Jupiter and Solarballs Mercury are my personalities
+ Devesto and Solarballs Mercury are my 2 personalities
 
  Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
 
