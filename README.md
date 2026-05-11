@@ -4,7 +4,7 @@
 
  17 y.o
 
- I go by any pronouns (she/her/he/him etc ! !)
+ Transfem
 
  Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
 
