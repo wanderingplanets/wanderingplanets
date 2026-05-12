@@ -14,7 +14,7 @@
 
  Transmasc / AFAB
 
- Devesto,Solarballs Io and Mercury kinnie
+ Solarballs Io and Mercury kinnie
 
  Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
 
