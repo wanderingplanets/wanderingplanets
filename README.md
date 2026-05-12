@@ -33,9 +33,7 @@
 
  Roleplay
 
- Sensitive topics
-
- Sexual jokes (only in whisper or party)
+ Sexual jokes (only in whisper or party to an extent which rlly depends on mood)
 
  ## Fandoms
 
