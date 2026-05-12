@@ -4,6 +4,8 @@
 
  17 y.o
 
+ I support any type of person such as Therians,Otherkins,Furries,Fictionkins,etc !! (I also feel like a Therian somtimes..?)
+
  Transmasc / AFAB
 
  Devesto and Solarballs Mercury  are my 2 personalities
@@ -18,6 +20,8 @@
 
  Proshipper
 
+ Racist,etc
+
  Forsaken fandom (unless party)
 
  Overly sensitive people (A little is ok but only to a extent)
@@ -26,14 +30,6 @@
 
  Sexual jokes in public chat esp if I don't know you
 
-
-## DO NOT INTERACT UNLESS FREIND . . .
-
- Ships 
-
- Roleplay
-
- Sexual jokes (only in whisper or party to an extent which rlly depends on mood)
 
  ## Fandoms
 
