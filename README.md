@@ -28,7 +28,7 @@
 
  Below 14 or over 25 years old (unless known before)
 
- Sexual jokes in public chat esp if I don't know you
+ Sexual jokes in public chat and if I don't know you
 
 
  ## Fandoms
