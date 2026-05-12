@@ -6,7 +6,7 @@
 
  Multishipper and Multifandom
 
- I support any type of person such as Therians,Otherkins,Furries,Fictionkins,etc !! (I also feel like a Therian somtimes..?)
+ I support any type of person such as Therians,Otherkins,Furries,Fictionkins,etc !!
 
  Transmasc / AFAB
 
