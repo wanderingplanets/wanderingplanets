@@ -4,6 +4,8 @@
 
  17 y.o
 
+ I have super strict irl parents </3
+
  I support any type of person such as Therians,Otherkins,Furries,Fictionkins,etc !! (I also feel like a Therian somtimes..?)
 
  Transmasc / AFAB
