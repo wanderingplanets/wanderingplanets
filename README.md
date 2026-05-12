@@ -24,6 +24,8 @@
 
  MAP
 
+ Joke about dead or really bad people constantly 
+
  Trump supporters or religions (if forced on me)
 
  Proshipper
