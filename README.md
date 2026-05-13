@@ -4,11 +4,7 @@
 
  17 y.o
 
- Devsuer CEO
-
  Multishipper and Multifandom
-
- I support any type of person such as Therians,Otherkins,Furries,Fictionkins,etc !!
 
  Transmasc / AFAB
 
@@ -26,7 +22,7 @@
 
  Joke about dead or really bad people constantly 
 
- Trump supporters or religions (if forced on me)
+ Trump supporters
 
  Proshipper
 
@@ -37,8 +33,6 @@
  Overly sensitive people (A little is ok but only to a extent)
 
  Below 14 or over 25 years old (unless known before)
-
- Sexual jokes in public chat and if I don't know you
 
 
  ## Fandoms
