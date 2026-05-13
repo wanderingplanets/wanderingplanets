@@ -4,6 +4,8 @@
 
  17 y.o
 
+ I love love Devsuer (Devesto x Pursuer)
+
  Multishipper and Multifandom
 
  Transmasc / AFAB
