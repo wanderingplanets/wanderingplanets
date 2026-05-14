@@ -22,8 +22,6 @@
 
  RP
 
- Joke about dead or really bad people constantly 
-
  Trump supporters
 
  Proshipper
