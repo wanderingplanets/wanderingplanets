@@ -1,6 +1,6 @@
 ## Names are Neptune or Mercury  (Or any of my nicknames)
 
-## Info abt me . . . 
+## Info 
 
  17 y.o
 
