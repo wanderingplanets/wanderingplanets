@@ -10,7 +10,7 @@
 
  Transmasc / AFAB
 
- Solarballs Io and Mercury fictionkin 
+ Devesto and Mercury fictionkin 
 
  Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
 
