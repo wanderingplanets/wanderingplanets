@@ -16,7 +16,7 @@
 
  Diagnosed Anxiety and ADD
 
- ## DO NOT INTERACT IF . . .
+ ## DNI
 
  MAP
 
@@ -37,23 +37,13 @@
 
  ## Fandoms
 
-  Solarballs 
+  Solarballs , Die of Death  
 
-  Die of Death 
+  Wings of Fire , Bad Things
 
-  Solarballs 
+  Evade , House of Puso
 
-  Wings of Fire
-
-  Bad Things
-
-  Evade
-  
-  House of Puso
-
-  Dandy's World
-
-  SpongeBob 
+  Dandy's World , SpongeBob 
 
   DeivyDoesTurtorials33 
   
