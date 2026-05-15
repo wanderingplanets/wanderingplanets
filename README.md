@@ -12,7 +12,7 @@
 
  Devesto and Mercury fictionkin 
 
- Demisexual , meaning I only feel attraction after forming a strong emotional bond w/ somone 
+ Demisexual and pansexual
 
  Diagnosed Anxiety and ADD
 
@@ -45,7 +45,7 @@
 
   Dandy's World , SpongeBob 
 
-  DeivyDoesTurtorials33 
+  ^_^ , DeivyDoesTurtorials33 
   
   ## WIP
 
